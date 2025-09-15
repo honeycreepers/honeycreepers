@@ -1,5 +1,5 @@
 ## a
-<p align="center"><img src="![rammer](https://media.discordapp.net/attachments/983060596419354654/1411742673437724803/Tumblr_l_117320297504698.gif?ex=68c83852&is=68c6e6d2&hm=e3f13cc8b66b93e44ab2d9dbd7e2c95e1396561a21950ccfa8b28389c4c58d56&=&width=600&height=300)" width="500" height="300"/> </p>
+<p align="center">![v](https://media.discordapp.net/attachments/983060596419354654/1411742673437724803/Tumblr_l_117320297504698.gif?ex=68c83852&is=68c6e6d2&hm=e3f13cc8b66b93e44ab2d9dbd7e2c95e1396561a21950ccfa8b28389c4c58d56&=&width=600&height=300)
 
 <p align="center"> ᝰ.ᐟ꩜ val/valentine or you can call me anything you know me by or my current cosplay - they/them - minor 𖥔 ݁ ˖ 
 
