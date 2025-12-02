@@ -21,6 +21,9 @@
 <p align="center"> im okay with inspo but please don't directly copy my skins, ty <img width="30" height="30" alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/my-friend-made-a-monk-sticker-v0-ieg35gbzc2ke1.webp?raw=true" />
 
 <p align="center"><img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/93259535-7495-4a4a-8519-fa9ffac9f6ac" />
+
+<p align="center"><img width="200" height="200" alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/image%20(7).webp?raw=true" />
+<p align="center"><img width="150" height="150" alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/cooltext497273470403006.gif?raw=true" />
  
 
  
