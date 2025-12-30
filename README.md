@@ -1,5 +1,5 @@
 ## a
-<p align="center"> <img width="250" height="250" alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/Lobotomy_E.G.O_In_the_Name_of_Love_and_Hate_Don_Quixote_Skill_1.gif?raw=true" />
+<p align="center"> <img width="300" height="300" alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/Lobotomy_E.G.O_In_the_Name_of_Love_and_Hate_Don_Quixote_Skill_1.gif?raw=true" />
 
 
 <p align="center"> ᝰ.ᐟ꩜ val/valentine - they/them - minor 𖥔 ݁ ˖ 
@@ -20,7 +20,7 @@
 
 <p align="center"> im okay with inspo but please don't directly copy my skins, ty <img width="30" height="30" alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/my-friend-made-a-monk-sticker-v0-ieg35gbzc2ke1.webp?raw=true" />
 
-<p align="center"><img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/93259535-7495-4a4a-8519-fa9ffac9f6ac" />
+<p align="center"><img width="150" height="150" alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/V%20Gif.gif?raw=true" />
 
 <p align="center"><img width="200" height="200" alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/image%20(7).webp?raw=true" />
 <p align="center"><img width="150" height="150" alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/cooltext497273470403006.gif?raw=true" />
