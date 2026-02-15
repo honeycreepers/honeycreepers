@@ -24,7 +24,6 @@
 <line> </line>
 
 
-<img alt="image" src="https://media.discordapp.net/attachments/1451387934921068675/1464684728597614642/Untitled250_20260124131407.png?ex=697857b3&is=69770633&hm=b634a349a492e3878d5d000cc2a15069e9579cef7dfa55a9fbc5783908edabbc&=&format=webp&quality=lossless&width=142&height=80" />
 
 <line> </line>
 <p align="center"> <img alt="image" src="https://github.com/honeycreepers/honeycreepers/blob/main/brothers.png?raw=true" />
