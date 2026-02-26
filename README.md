@@ -4,14 +4,14 @@
 <p align="center"> ᝰ.ᐟ꩜ val/valentine - they/them - minor 𖥔 ݁ ˖ 
 
 
-<p align="center"> i Love int and C+h pleas ! Pleas int with me or sit by me anytim even if im with friends!!!!!!!! HOWEVER i am offtab ALL the time and i miss so much So PLS W2I OR SPIN ATTACK ME UNTIL I SEE YOU I swear i am NOT ignoring you or anything I OWE MY FRIENDS MY FIRSTBRON CHILDRENA ND MY CORPOREAL FORM AND ALL MY MORTAL POSSESSIONS IAM SO SORRY I THINK YOU GUYS AR SO COOL I LIKE U ALL AND I AM TOO SCARED OT INT FIRST SOMETIMES! :DDDDDDDDDDDDDD
+<p align="center"> i Love int and C+h pleas ! Pleas int with me or sit by me anytim even if im with friends!!!!!!!! HOWEVER i am offtab ALL the time and i sometimes play with public chat bubbles off and i miss so much So PLS W2I OR SPIN ATTACK ME UNTIL I SEE YOU I swear i am NOT ignoring you or anything I OWE MY FRIENDS MY FIRSTBRON CHILDRENA ND MY CORPOREAL FORM AND ALL MY MORTAL POSSESSIONS IAM SO SORRY I THINK YOU GUYS AR SO COOL I LIKE U ALL AND I AM TOO SCARED OT INT FIRST SOMETIMES! :DDDDDDDDDDDDDD
  
 
 <p align="center"> * ‧̍̊˙· 𓆝.° ｡˚𓆛˚｡ °.𓆞 ·˙‧̍̊ </center>  
 
 
 
-<p align="center"> im usually at/near project moon area or docks </center>  
+<p align="center"> im usually at/near docks, sometimes project moon area but i go there less now Sorry </center>  
 
 <line> </line>  
 
