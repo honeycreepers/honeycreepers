@@ -11,7 +11,6 @@
  ✦ i appreciate c+h and int anytime, even if im with friends :D ✦ <br>
  ✦ always around docks and occasionally PM area ✦ <br> 
  ✦ sharing jia qiu yumeshipper 🐇🧣 ✦ <br> 
- ✦ more on my [strawpage](honeycreepers.straw.page) ✦
   </th>
  </tr>
 </table>
